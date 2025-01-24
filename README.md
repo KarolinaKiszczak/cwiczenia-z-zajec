@@ -1,1 +1,1 @@
-to nieistotne zadania raczej, proszę nie marnować czasu
+# to nieistotne zadania raczej, proszę nie marnować czasu
